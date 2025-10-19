@@ -1,7 +1,7 @@
 # Self-Introduction 🌴 (The Tropical Edition)
 
 ## Basic Info
-- **Name**: [Your Name] (Professional Procrastinator)  
+- **Name**: Renda Han (Professional Procrastinator)  
 - **Status**: Full-time student at Hainan University (Part-time sunset admirer)  
 - **Location**: Living that island life at China's southernmost 211 University  
 
